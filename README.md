@@ -24,5 +24,5 @@ I strongly believe in giving back to the community and actively participate in:
 - **Social Initiatives:** Artshala 'Paint A School' project (BMC Kural Village) and Organ Donation Awareness.
 
 ### 📫 Let's Connect
-- **Email:** [Aapka Email Yahan Dalein]
-- **LinkedIn:** [Aapka LinkedIn URL Yahan Dalein]
+- **Email:** [adityamandal7464@gmail.com]
+- **LinkedIn:** [(https://www.linkedin.com/in/rupesh-mandal-059999439/)]
